@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @CryptoBaeJ
+- 👋🏾 Hey Frens I'm @CryptoBaeJ
 - 👀 I’m interested in CryptoEducation, NFTs and Holistic Health.
 - 🌱 I’m currently learning Solidity.
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on my YouTube Show "Crytically Crypto". 
 - 📫 You can reach me @CryptobaeJ
 
 <!---
